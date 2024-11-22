@@ -2,7 +2,7 @@
 - 👀 I’m interested in video games 🎮
 - 🌱 I’m currently learning how to create sites
 - 💞️ I’m looking to collaborate on twitch/youtube
-- 📫 How to reach me- go to hell and glue me
+- 📫 How to reach me- go to hell and glue me back together
 - ⚡ Fun fact: Every day we eating 2 bugs a day (its real lol)
 
 <!---
